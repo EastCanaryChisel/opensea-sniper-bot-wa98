@@ -1,4 +1,4 @@
-# 
+# advanced opensea sniper bot | trait-analysis + multi-chain-support is the best opensea sniper bot, featuring trait-analysis and multi-chain-support. Fast, smart, and optimized for
 
 
 
